@@ -1,9 +1,3 @@
 # Web-Tasar-m-
 
 BİRAZ BLOG TADINDA GÜZEL BİR PROJE WEB SİTELERİNİZDE KULLANABİLİRSİNİZ.
-
-İNSTAGRAM : hakoo28_
-
-İNSTAGRAM : ozekk35
-
-İYİ GÜNLER
